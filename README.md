@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @amanda-a7
+- 👋 Hi, everyone, I’m @amanda-a7
 - 👀 I’m interested in Web3
 - 🌱 I’m currently learning about Monero.
 - 💞️ I’m looking to collaborate on some web3 projects
