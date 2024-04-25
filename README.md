@@ -2,7 +2,8 @@
 - 👀 I’m interested in Web3
 - 🌱 I’m currently learning about Monero.
 - 💞️ I’m looking to collaborate on some web3 projects
-- 📫 How to reach me ...
+- 📫 How to reach me amandas6683ATGMAIL
+
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
